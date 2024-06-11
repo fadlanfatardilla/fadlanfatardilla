@@ -1,6 +1,6 @@
-## Hello, Welcome to My Profile! 👋
+## Hello, Welcome to My Profile! 🦖
 
-Nice to meet you, I Am Fadlan Fatardilla Sumaila
+Nice to meet you, I am Fadlan Fatardilla Sumaila 🤖
 
 ### 🛠 &nbsp;Tech Stack
 
